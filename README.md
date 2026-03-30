@@ -1,1 +1,1 @@
-w3 - IT Products & Services.
+w3Ghana - IT Products & Services.
