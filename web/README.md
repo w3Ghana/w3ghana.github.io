@@ -1,1 +1,1 @@
-w3Ghana - web
+w3Ghana - web.
