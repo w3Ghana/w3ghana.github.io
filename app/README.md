@@ -1,1 +1,1 @@
-w3Ghana - app
+w3Ghana - app.
